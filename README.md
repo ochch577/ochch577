@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... 577
 - 🌱 I’m currently learning ... 577
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... app gametalktalk nickname 오치치57764 / 332929
+- 📫 How to reach me ... ddd
 
 # 577
 
