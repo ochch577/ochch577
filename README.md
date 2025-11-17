@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ochch577
-- 👀 I’m interested in ... 577
+- 👀 I’m interested in ... 577 and rng sys
 - 🌱 I’m currently learning ... 577
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... ddd
